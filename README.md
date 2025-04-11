@@ -1,6 +1,6 @@
 ## Hi there, I'm Sampath 👋
 
-Welcome to my GitHub profile! I am a 20 year old with a passion for electronics
+Welcome to my GitHub profile! I am a 20 year old with a passion for finance and electronics
 
 ---
 
